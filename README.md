@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lonelyasitwas
+- 👀 I’m interested in ...Programming
+- 🌱 I’m currently learning ...Osint
+- 💞️ I’m looking to collaborate on ...nothing till i get better
+- 📫 How to reach me ...come to my house and lest drink some coffe
